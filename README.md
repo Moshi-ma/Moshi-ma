@@ -1,4 +1,12 @@
-## Hi there 👋
+Opa, sou Moshi-ma.
+
+Meu foco é ilustração, mas também faço character desing e concept art.
+Quer ver projetos vai no insta: @Carol.figueira
+
+entre em contato por lá.
+
+
+
 
 <!--
 **Moshi-ma/Moshi-ma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
